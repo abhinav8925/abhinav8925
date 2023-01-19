@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **anandabhinav1903@gmail.com**
 
-- ⚡ Fun fact **I would love to play chess against you 🤨.**
+- ⚡ Fun fact **I would love to play chess against you 🤨♟♟.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
